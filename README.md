@@ -1,3 +1,3 @@
 # Techplement
 continue...
-![image](https://github.com/inglepriyanka148867/Techplement/assets/152428133/c5342ccd-2c2d-48e8-b2bb-fb67c6c39878)
+![image](https://github.com/inglepriyanka148867/Techplement/assets/152428133/eb9afd76-38e7-4baa-b1c3-c9d47793fb04)
